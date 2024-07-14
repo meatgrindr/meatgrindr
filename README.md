@@ -10,7 +10,7 @@
 
 ![7](https://pix.crd.co/assets/images/gallery05/b3ad5d65_original.png?v=cf5fcef5)![7](https://pix.crd.co/assets/images/gallery05/b3ad5d65_original.png?v=cf5fcef5)
 
-![5](https://pix.crd.co/assets/images/gallery08/ad18d167_original.gif?v=cf5fcef5) interests : atsv , pjo , deadplate , yaelokre , splatoon , identity v , creepypasta , moriarty the patriot , fnaf , regretevator , phighting , adventure time , sally face , vampire in the garden , homestuck , danganronpa , saiki - k ,  omori , marble hornets
+![5](https://pix.crd.co/assets/images/gallery08/ad18d167_original.gif?v=cf5fcef5) interests : atsv , pjo , deadplate , yaelokre , splatoon , identity v , creepypasta , moriarty the patriot , fnaf , regretevator , phighting , adventure time , sally face , vampire in the garden , homestuck , saiki - k ,  omori , marble hornets , walten files
 
 ![7](https://pix.crd.co/assets/images/gallery05/6e41d35b_original.png?v=cf5fcef5)![7](https://pix.crd.co/assets/images/gallery05/6e41d35b_original.png?v=cf5fcef5)
 
