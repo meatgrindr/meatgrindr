@@ -21,4 +21,18 @@
 
 
 
-![meow](https://caterpie.crd.co/assets/images/gallery05/ba5426b8.gif?v=f7b7a140)
+![meow](https://caterpie.crd.co/assets/images/gallery05/ba5426b8.gif?v=f7b7a140) 
+
+xtra abt me :
+
+i may not be the one fromting 24/7 on pt keep that in mind— anyone could be there and u wouldnt know! (niccolò, pest, kasper.. etc.)
+
+i am an introvert and am prone to being a bit awkward at first— rest assure i will open up after a bit!
+
+i am free to be int w as i am friendly despite my shyness ! just dont int w me if i have "dniuf, dniuc etc." in my pony name pls !
+
+i am usually afk when on idle and may be slow to reply to whispers ^^
+
+plspls if u wanna befriend me pls ask for my socials, i am quicker to respond on discord then any other app and i may not be online 24/7 on ponytown.
+
+i love love being near ppl i think r cool.... but am very introverted soo :(
