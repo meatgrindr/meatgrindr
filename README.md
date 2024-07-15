@@ -14,7 +14,7 @@
 
 ![7](https://pix.crd.co/assets/images/gallery05/6e41d35b_original.png?v=cf5fcef5)![7](https://pix.crd.co/assets/images/gallery05/6e41d35b_original.png?v=cf5fcef5)
 
-![4](https://pix.crd.co/assets/images/gallery08/be4f5233_original.gif?v=cf5fcef5)  dni : non-tonetag users , hazbin hotel / helluva boss fans (current friends do not apply) , dsmp fans , basic dni criteria , ppl who forces ships (that i we dont ship) upon me , non-close friends who use pet names / nicknames on me , zionists , people who only talk abt religion .
+![4](https://pix.crd.co/assets/images/gallery08/be4f5233_original.gif?v=cf5fcef5)  dni : non-tonetag users , hazbin hotel / helluva boss fans (current friends do not apply) , dsmp fans , basic dni criteria , ppl who forces ships (that i we dont ship) upon me , non-close friends who use pet names / nicknames on me , zionists , people who talk about **religion** around me (get the fuck away from me if u do) .
 
 ![3](https://pix.crd.co/assets/images/gallery08/9d9b9cba_original.gif?v=cf5fcef5) iwc : doubles , pjsk fans , ppl who flirt without tonetags .
 
