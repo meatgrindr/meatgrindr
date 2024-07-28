@@ -1,6 +1,6 @@
  ![alt text](https://i.postimg.cc/Bbt9sSg1/93-ADD40-E-3-EA3-4-FBC-BBB9-4564-D78-C94-E2.png)
 
-![8](https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif)  — BAS / WILL  |  HE / HIM  (OR ANY NON FEM TERMS) | FICTIVE SYS - HOST
+![8](https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif)  — BAS / WILL  |  HE / HIM  (OR ANY NON FEM TERMS)
 
 ![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj)
 
@@ -20,18 +20,4 @@
 
 
 
-![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj)
-
-xtra abt me :
-
-i may not be the one fromting 24/7 on pt keep that in mind— anyone could be there and u wouldnt know! (niccolò, pest, kasper.. etc.)
-
-i am an introvert and am prone to being a bit awkward at first— rest assure i will open up after a bit!
-
-i am free to be int w as i am friendly despite my shyness ! just dont int w me if i have "dniuf, dniuc etc." in my pony name pls !
-
-i am usually afk when on idle and may be slow to reply to whispers ^^
-
-plspls if u wanna befriend me pls ask for my socials, i am quicker to respond on discord then any other app and i may not be online 24/7 on ponytown.
-
-i love love being near ppl i think r cool.... but am very introverted soo :(
+![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj) 
