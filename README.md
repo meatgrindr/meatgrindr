@@ -1,23 +1,19 @@
- ![alt text](https://i.postimg.cc/Bbt9sSg1/93-ADD40-E-3-EA3-4-FBC-BBB9-4564-D78-C94-E2.png)
+ ![alt text](https://64.media.tumblr.com/e9cbee148eccaa61111637c82730a6dc/54f7d060ccf6d1eb-22/s640x960/97f9bf41a0ed5ef1bc91d6879c2705cb94c083be.gif)
 
-![8](https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif)  — BAS / WILL  |  HE / HIM  (OR ANY NON FEM TERMS)
+![8](https://64.media.tumblr.com/2d6e6f544bbb9cb338442a40a4d8a319/7ff15572939cc448-3c/s75x75_c1/0750e3a6b920f022d1dd784f1d55ded5db7092b4.gif)  — BAS / WILL / ACCARDI  |  HE / HIM  | TMASC + GAY | LITERALLY MENTALLY ILL..
 
-![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj)
+" HEY GIRL , U ALRIGHT ? AIN'T NOTHING 2 DO TONITE , LETS GO PUT THE U N I IN SUIC-- "
 
-![6](https://64.media.tumblr.com/110decd6d2554ce076486f00de2ee58c/b55b2416bafcc208-22/s75x75_c1/751f305e5b6bee574f8f93b483fe493c889d5a2a.gif)    ✦    copying or __heavily__ inspiring off my skins i don't allow , unless your friend i talk to regularly then i'll allow u to use my ponies 4 inspo
+![7](https://64.media.tumblr.com/1314fa1e19e6a033e447e1190477c051/c8a8e24a87d16d26-cf/s640x960/d7a28a117b1ac579632554919b679ab1d666c2f7.pnj)
 
-![1](https://64.media.tumblr.com/097381633470718f166398191862c32e/b55b2416bafcc208-9c/s75x75_c1/bb418778614e5eff07b13c75210a6c37828cb09c.gif)    ✦   most times whenever im online i can be seen sitting or cuddling with friends (basically like 3 since im bad at asking to sit or cuddle w others) though if u do want to befriend me pls int w caution as i am prone to becoming shy when approached, though i am friendly ! ( also if i am alone , i am prob doing smth irl or offtab . . whisp 2 int , though i can lurk sometimes ! ) ^__^
+![6](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gif) ✦    plz dont use my ponies or oc designs as inspo or reference, also 2 note i do not post any of my ponies on any platform except 4 small discord servers w my friends, if my ponies r reposted plz lmk!
 
-![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj)
+![1](https://64.media.tumblr.com/54f286b6c665ede3d381a59072484336/c14378824fd1614e-14/s75x75_c1/a3e340a66e2495d3fcab3cba03ad1ba098097632.gif)    ✦   plz take the warnings in my name w a grain of salt, i am introverted though idm if approached !! im just shy thatz all. ^__^💧 (also i am mostly offtab if seen sitting alone or sleeping.)
 
-![5](https://64.media.tumblr.com/466a6004ef68aace3d9fdd17f1c26af9/b55b2416bafcc208-3a/s75x75_c1/5beafc7a5649a202befac5c4bd2c4675426ebfbd.pnj) interests : atsv , **pjo**  , yaelokre , splatoon , **dead plate** , identity v , **creepypasta** , moriarty the patriot , **fnaf** , regretevator , **phighting** , adventure time , sally face , vampire in the garden , **homestuck** , saiki - k ,  omori , marble hornets , **walten files** , married in red , angels of death , persona 5 , **greek mythology** , roblox , invader zim
+![7](https://64.media.tumblr.com/1314fa1e19e6a033e447e1190477c051/c8a8e24a87d16d26-cf/s640x960/d7a28a117b1ac579632554919b679ab1d666c2f7.pnj)
 
-![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj)
+![5](https://64.media.tumblr.com/c7b9fc8ee7ab1f997c9a1884c6fa2057/c14378824fd1614e-f8/s75x75_c1/8b009a003a4e5197e372abfc8f99639b93f8e4cd.gif) main interests ✦ persona 5 , regretevator , phighting , dead plate , 8:11 , pjo , gravity falls , fnaf , south park , sally face , splatoon , creepypasta
 
-![4](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/3c325a77cbf3ea01-6a/s75x75_c1/2d8176a7dc4f6d0f986580af3f8414e9febe349b.gif)  dni (non bold means thin ice) : **people who talk about god/devil around me in a religious manner** , **people who call me basil** , danganronpa fans , **people who sexualize me** , **zionists (isnotreal supporters etc.)** , **hazbin hotel / helluva boss fans** , yandere sim fans , people who say theyre gonna touch me (it makes me uncomfortable alot) , **basic dni criteria (homophobic, transphobic, racist etc.)** , **old friends / people i (or we) once knew** , **people who forces ships i dont ship upon me** , genshin fans , **18+ or -12 ppl** , **non-close people who use petnames in a genuine manner on me.**
+![7](https://64.media.tumblr.com/1314fa1e19e6a033e447e1190477c051/c8a8e24a87d16d26-cf/s640x960/d7a28a117b1ac579632554919b679ab1d666c2f7.pnj)
 
-
-
-
-
-![7](https://64.media.tumblr.com/fb66c4294a017ca45668feb0ba163265/b72c845ab8e2356c-b5/s400x600/200c57bb9e7c431e878ed64a084ac3fe2375b970.pnj) 
+![4](https://64.media.tumblr.com/95d8810da3abe4b0b0fb97a7103b806a/8f2c33dff79370d2-23/s75x75_c1/4111623d02e7e0bc6b1195461ec64366b3465200.gif)  dni ✦ ppl who force their ships upon me , vivziepop media fans , tcoaal fans , basic dni criteria , old friends , people who dont use tonetags 4 me (i rlly need them) 
